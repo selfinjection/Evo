@@ -6,4 +6,4 @@ Drawing on the concept of 16 personalities and personality accentuation theory, 
 
 Feel free to chat with me or share your ideas on how to better personalize education for each student to make education faster and more effective.
 
-trycide#2923 / discord.gg/YNEWvYX2 
+trycide#2923 / [Discord](https://discord.com/invite/YNEWvYX2)
